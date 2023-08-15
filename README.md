@@ -1,0 +1,1 @@
+Olá sou o Jolisson tenho 26 anos. Desde muito novo eu sempre tive vontade e curiosidade de aprender sobre tecnologia sempre buscando conhecimento em cursos e até por conta propria, mas finalmente em 2022 tive uma virada de chave na minha vida, onde me aprofundei mais na programação e desenvolvimento de software e criação de web sites.
